@@ -5,7 +5,7 @@
 ## 📞 MY CONTACTS
 
 - **For any questions write here: [https://t.me/soltokensup](https://t.me/soltokensup)**
-- **News group: [https://t.me/coconutosup](https://t.me/coconutosup)**
+- **News group: [https://t.me/soltokensup](https://t.me/soltokensup)**
 
 ### ⚠️ LEGAL INFORMATION
 
